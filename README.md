@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DanielaGaldamez240824
 - 👀 I’m interested in English language teaching 
-- 🌱 I’m currently learning how to impact students´learning throughout lúdic methods.
+- 🌱 I’m currently learning how to impact students´ learning throughout ludic methods.
 
 
 <!---
